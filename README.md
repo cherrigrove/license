@@ -14,5 +14,8 @@ you can, but i'd prefer you not:
 
 1. reupload my stuff *with* permission 1:1
 
-anything i make that doesn't have anything i made in it will not be licensed and instead, will be ARR'ed. if i have something with your content in it and you want it taken down, i will do so
+anything i make that doesn't have anything i made in it will not be licensed and instead, will be ARR'ed
+
+if i have something with your content in it and you want it taken down, i will do so
+
 visit https://cherrigrove.carrd.co/ and join my discord if you have any questions
